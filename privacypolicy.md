@@ -62,4 +62,4 @@ This policy is effective as of 2023-11-26
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at inmessiveapp@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at inmesiveapp@gmail.com.
