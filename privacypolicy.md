@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Roberth López built the TinyTales app as a Freemium app. This SERVICE is provided by Roberth López at no cost and is intended for use as is.
+Inmersiveapps built the TinyTales app as a Freemium app. This SERVICE is provided by inmersiveapps at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
